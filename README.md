@@ -1,14 +1,14 @@
 独家影视网 · 最新网址（2024.04.05 最后更新）
 最新：https://www.licorcn.com/
 
-备份：https://www.qiqi888.com
+备份：https://vip.pos7.cc
 
 如果浏览器输入网址，请手动添加 https 而非 http
 
 独家影院 · 易记域名
 https://www.licorcn.com/
 
-https://www.qiqi888.com
+https://vip.pos7.cc
 
 记住上面的域名，不会迷路！!
 
