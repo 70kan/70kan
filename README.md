@@ -1,14 +1,16 @@
-## 独家影视网 · 最新网址（2024.04.05 最后更新）
+## 独家影视网 · 最新网址（2024.08.01 最后更新）
 > 最新：[https://www.licorcn.com](https://www.licorcn.com?ref=github)
 >
 > 备份：[https://vip.pos7.cc](https://vip.pos7.cc?ref=github)
+> 备份：[https://v.yjst.net](https://v.yjst.net?ref=github)
 > 
 > 如果浏览器输入网址，请手动添加 `https` 而非 `http`
 
 ## 独家影视网 · 易记域名
-> [http://www.licorcn.com](http://www.licorcn.com?ref=github)
+> [https://www.licorcn.com](https://www.licorcn.com?ref=github)
 > 
-> [http://vip.pos7.cc](http://vip.pos7.cc?ref=github)
+> [https://vip.pos7.cc](https://vip.pos7.cc?ref=github)
+> [https://v.yjst.net](https://v.yjst.net?ref=github)
 > 
 > 记住上面的域名，不会迷路！!
 
